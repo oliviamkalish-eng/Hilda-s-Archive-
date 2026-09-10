@@ -8,4 +8,4 @@ The following government records document Hilda's parents immigration to the Uni
 
 ### Practice Table 
 | Header 1 | Header 2 | Header 3 | 
-| --- | --- | ---| 
+| --- | --- | --- | 
