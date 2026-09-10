@@ -4,7 +4,8 @@ Hilda Kalish (b. 1928, New York City) maiden name Schmer, was the daughter of Ru
 ### Government Documents 
 The following government records document Hilda's parents immigration to the United States. 
 ![Ida Schmer's Immigration paperwork.](IMG_3048.jpeg)
-[Link to Laura Mintz (Schmer)'s Obituary ]([https://www.goldmanfc.com/memorials/laura-mintz/4530740/])
+[Link to Laura Mintz Schmer's Obituary ](https://www.goldmanfc.com/memorials/laura-mintz/4530740/)
+
 ### Practice Table 
 | Header 1 | Header 2 | Header 3 | 
 | --- | --- | ---| 
